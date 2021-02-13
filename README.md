@@ -1,3 +1,3 @@
-"# DiscordNitro" 
-"# DiscordNitro" 
-"# DiscordNitro" 
+# DiscordNitro (Fake)
+
+Fake discord nitro link to troll your friends...
